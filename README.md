@@ -1,1 +1,1 @@
-# Lumbix-Spam-Chart
+Click on Code and Download as ZIP
